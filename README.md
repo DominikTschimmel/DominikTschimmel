@@ -1,1 +1,1 @@
-Contact: [dominiktschimmel.github.io](dominiktschimmel.github.io)
+Contact: [dominiktschimmel.github.io](https://dominiktschimmel.github.io)
